@@ -1,1 +1,1 @@
-# Ak-ll-Ders-Program-
+Akilli ders programi
